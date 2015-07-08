@@ -1,1 +1,1 @@
-course design
+course design in NNU
